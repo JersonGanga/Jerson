@@ -1,2 +1,2 @@
 # Jerson
-Sou um Aluno 
+Sou um estudante apaixonado por aprender e crescer academicamente.
